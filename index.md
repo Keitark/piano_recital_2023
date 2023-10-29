@@ -2,7 +2,7 @@
 
 ### 配信情報
 
-**URL** ライブ配信は[こちら](https://youtube.com/live/yCl6CQu8yKU?feature=share)からどうぞ！！（12：20更新）
+**URL** ライブ配信は[こちら](https://youtube.com/live/kLWtFU85YYE?feature=share)からどうぞ！！（13：30更新）
 
 限定公開での配信となっておりますので、ご家族やご友人の方にリンクをお知らせください。
 尚、リンクの取り扱いにはご注意ください。
